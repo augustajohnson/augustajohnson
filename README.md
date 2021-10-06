@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @augustajohnson
+- 📍 Based out of Arizona. 
 - 👀 I’m interested in Graphic and Product Design.
 - 🌱 I’m currently learning Digital Print and Publishing.
 - 📫 Reach me at augustjohnson@hey.com
